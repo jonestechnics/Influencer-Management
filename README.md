@@ -1,0 +1,4 @@
+# Code Refactor Starter Code
+this website will help improve the optimizion of influncers website and haveing there show up first in the search engine. it will help improve then finding the customers that fit there bussnes needs when searching for them on the couch, on the go or from home.
+influncers looking to improve there online reputation. it will help optimize what potential customers see and and connect with on your webiste. helping improve your outcome of getting better review for your site.
+helps influncers inmprove there social media marketing out website will help find what social media site will be best for you to get the best customers that suit you using analytics to find the right markets and increase your leads.
